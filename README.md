@@ -1,8 +1,8 @@
-Hi Varun,
+section B Chapter VI A - Deductions from Total income.
 
-It has come to my notice that we generally receive our Promotion revised compensation letter in the last week of the respective month and the same will be reflected in that month's Payslip.
+Policy # P700001012020010782: Attached proof.
+Policy # 30815901201901		: Attached proof.
 
-Please let me know how we could take this forward. 
+Section C. Chapter VIA - Section 80C
 
-Thanks and Regards,
-Sasidhar. 
+Policy # 27176470			: Attached proof.
